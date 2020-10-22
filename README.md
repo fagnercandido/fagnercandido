@@ -1,3 +1,5 @@
+![capa github](https://raw.githubusercontent.com/fagnercandido/fagnercandido/master/Fagner%20Candido.png)  
+
 ### Hi there 👋
 
 <br />
