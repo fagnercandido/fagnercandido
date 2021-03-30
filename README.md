@@ -5,7 +5,7 @@
 <br />
 <br />
 
-passionate about technology and by learning something new. Always sharing knowlegde and funnying this. :)
+passionate about technology and by learning something new. Always sharing knowlegde and amusing this. :)
 
 <br />
 <br />
